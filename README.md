@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Vinícius Fontes
+# 👨🏻‍💻 Vinícius Fontes
 
 **`Acadêmico de ADS`**
 
